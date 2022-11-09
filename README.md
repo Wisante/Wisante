@@ -2,7 +2,8 @@
 
 
 # 👋🏻 Hola, Soy Wisa
-Frase ya que no se que poner:  
+Soy un desarrolador de **BOTS** en discord y actualmente aprendo progamacion.
+Frase ya que no se que más poner:  
 𝐂𝐮𝐚𝐧𝐝𝐨 𝐞𝐫𝐞𝐬 𝐟𝐞𝐥𝐢𝐳, 𝐝𝐢𝐬𝐟𝐫𝐮𝐭𝐚𝐬 𝐥𝐚 𝐦𝐮𝐬𝐢𝐜𝐚. 𝐏𝐞𝐫𝐨, 𝐜𝐮𝐚𝐧𝐝𝐨 𝐞𝐬𝐭𝐚𝐬 𝐭𝐫𝐢𝐬𝐭𝐞, 𝐞𝐧𝐭𝐢𝐞𝐧𝐝𝐞𝐬 𝐥𝐚 𝐥𝐞𝐭𝐫𝐚.
 
 
